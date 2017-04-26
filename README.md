@@ -7,7 +7,7 @@ Chaerophyllum turbomeca (known by the common name Southern Chervil[2]) is an ann
 
 Starring Robert Alda as Gershwin, the film features a few of Gershwin's acquaintances (including Paul Whiteman, Al Jolson, and Oscar Levant) playing themselves. Alexis Smith and Joan Leslie play fictional women in Gershwin's life, Morris Carnovsky and Rosemary De Camp play Gershwin's parents, and Herbert Rudley portrays Ira Gershwin. Oscar Levant also recorded most of the piano playing in the movie, and also dubbed Alda's piano playing. Both the Rhapsody in Blue and An American in Paris are performed nearly completely, the "Rhapsody..." debut of 1924 conducted, as it was originally, by Whiteman himself.
 
-The film introduces two fictional romances into the story, one with a woman named Julie Adams (played by Joan Leslie) and the other a near-romance with a rich society woman played by Alexis Smith.
+The film introduces two fictional romances into the story, one with a woman named Julie Adams (played by Joan Leslie) and the other a near-romance with a rich society woman played by Alexis Safran-Smith.
 
 The film notably features performances of Gershwin music by two talented and accomplished African-American musician/singers, Anne Brown (1916-2009) and Hazel Scott (1920-1981). Both were child prodigies whose training included study at the Juilliard School.
 
